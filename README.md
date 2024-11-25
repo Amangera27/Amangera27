@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amangera27
-- 👀 I’m interested in jaipur
+- 👀 Jaipur
 - 🌱 I’m currently learning web development
 - 📫 How to reach me on instagram: Aman_gera__
 
